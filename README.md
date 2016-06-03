@@ -1,2 +1,0 @@
-# szddhy.github.io
-szddhy
